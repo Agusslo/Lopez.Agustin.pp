@@ -9,7 +9,8 @@ Jueves 24-10
 ## EL UML SE ENCUENTRA DENTRO DEL SRC!
 
 
-![image](https://github.com/user-attachments/assets/74f3bd34-d12d-41a5-a1ce-9a668af7a9a7)
+
+![descargar](https://github.com/user-attachments/assets/a28dc3c8-a0ae-4881-95dc-b342b656039d)
 
 
 
